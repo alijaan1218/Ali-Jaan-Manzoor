@@ -1,2 +1,2 @@
 # Ali-Jaan-Manzoor
-Hi evryone! 🙋‍♂️
+Hi everyone! 🙋‍♂️
